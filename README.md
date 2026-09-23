@@ -190,7 +190,6 @@ Với gói [**dịch vụ làm hồ sơ khai thác nước mặt**](https://moit
 
 - **Hotline:** **0938.857.768**
 - **Website:** [https://moitruonghopnhat.com/](https://moitruonghopnhat.com/)
-- **Dịch vụ:** [Dịch vụ làm hồ sơ khai thác nước mặt](https://moitruonghopnhat.com/bao-cao-khai-thac-nuoc-mat-511/)
 
 ### Xem thêm
 

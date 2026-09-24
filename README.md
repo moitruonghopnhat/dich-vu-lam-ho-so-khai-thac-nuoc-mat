@@ -2,8 +2,6 @@
 
 > **Hợp Nhất** cung cấp dịch vụ tư vấn và lập hồ sơ khai thác nước mặt, hỗ trợ doanh nghiệp rà soát đối tượng, xác định thủ tục phù hợp, khảo sát hiện trạng, lập đề án, hoàn thiện hồ sơ và đồng hành trong quá trình thẩm định.
 
-**Website:** [moitruonghopnhat.com](https://moitruonghopnhat.com/)  
-**Hotline:** **0938.857.768**
 
 ![Dịch vụ lập hồ sơ khai thác nước mặt](https://moitruonghopnhat.com/uploads/images/Dich-vu/dich-vu-lap-ho-so-khai-thac-nuoc-mat-1.jpg)
 
